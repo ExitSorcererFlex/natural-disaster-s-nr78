@@ -1,4 +1,4 @@
-
+automatic natural disaster survival Scripts is the best natural disaster survival Script, featuring no cooldown and invisibility. Safe and powerful
 
 
 
